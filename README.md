@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @darogova
+- 👀 I’m interested in social research methods
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on social research projects
